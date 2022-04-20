@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @Traste133 and I'm not head of anything n I'm learning this shit just to try approach U in a way I might found U, to say how I miss u n how I'm sad about u leaving without saying goodbye, but also to say even everybody around me saying me to leave u behind I can't, cuz u really means something special to me.
